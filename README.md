@@ -22,7 +22,7 @@ Currently working at [Wexa.ai](https://wexa.ai) where I’m building a powerful 
 
 ## 📫 Let's Connect
 - [LinkedIn](https://linkedin.com/in/bishwajit-behera)
-- [Resume]([https://aurajobs.ai/cv-form?id=WBs7M89lSe](https://drive.google.com/file/d/11oczaCwmBd3QaSVyVXwB3G-H2uPgDubH/view?usp=sharing))
+- [Resume](https://drive.google.com/file/d/11oczaCwmBd3QaSVyVXwB3G-H2uPgDubH/view?usp=sharing)
 
 ---
 
